@@ -1,4 +1,4 @@
-## About me
+## 🧋About me 
 - 👋 Hi, I’m @wyvernbw
 - I love ☕coffee, 🎮games and 🎨art in general. 
 - I'm an indie game developer. You can also find me on [itch.io](https://wyvernbw.itch.io/)
