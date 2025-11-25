@@ -1,3 +1,3 @@
-# the sauce
+WHO/indie game developer.
 
-I am the lead design team coordinator at my own kitchen so here is how I make my *perfect* medium rare tuna steak: use bluefin tuna, make sure you pat it down on both sides with a paper towel (moist stops it from searing) and add salt (like a lot of salt) and pepper (if you want). Heat up your pan and add a bit of sesame oil and grapeseed oil, then toss in a lemon slice in there. Put the fish in the pan, lay it down away from you unless you enjoy the warm touch of hot oil like me (it goes harder shirtless) and sear on medium high heat for 45 sec on each side, then cook it for 15-20 seconds on low heat on each side (you don't want a raw interior). When it's done leave it rest for 3 or 4 minutes. 
+game reveal soon
